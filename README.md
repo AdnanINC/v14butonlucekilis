@@ -1,1 +1,1 @@
-# v14baslangicbot adı altında paylaşmış olduğum çekiliş botudur
+# https://discord.gg/6Mufr2Dzrp
